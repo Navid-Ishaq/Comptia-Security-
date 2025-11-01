@@ -180,4 +180,3 @@ This writing aims to promote **digital honesty, literacy, and well-being** for e
 
 ---
 
-Would you like me to continue next with **“Availability — The Lifeline of Digital Access”** in the same gentle, mentor-style format?
